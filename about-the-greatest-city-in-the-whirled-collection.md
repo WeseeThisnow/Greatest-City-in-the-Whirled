@@ -1,0 +1,3 @@
+The _Greatest City in the Whirled_ collection celebrates the finest cities imaginable, the ones we imagine in our own minds. Imagine our imagination, our minds at play, free of the strictures and structures of society… Our minds loosened, our perspectives shifted, our hearts opened. Explore this whirled, reverie-inducing vision through 80 manipulated photographs, grouped into 20 sets of related fours. The work rewards lingering attention, offering multiple perspectives and helping to break our patterns of perception. 
+
+The collection represents two years of active creative exploration, following two years of part-time work in developing the algorithm sequences. It’s the first collection from the _Whirled Symmetries_ series. 

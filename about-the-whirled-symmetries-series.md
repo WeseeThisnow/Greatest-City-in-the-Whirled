@@ -1,0 +1,3 @@
+The _Whirled Symmetries_ series intersects organic photography and bespoke algorithm sequencing, with the goal of transforming our perspectives of the world. The approach invites you to explore multidimensional spaces often invisible to the naked eye. Zoom in for surprising details and abstractions, zoom out to reveal new patterns of your own emergent observation. Engage your mind to compare and contrast the puzzling similarities and differences across each set of quads. 
+
+Initial work on the algorithm sequences began in 2017, and was expanded significantly in 2018 and further again in 2020. _Greatest City in the Whirled_ is the first collection from the series. 
